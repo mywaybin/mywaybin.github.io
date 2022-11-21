@@ -1,0 +1,1 @@
+# mywaybin.github.io
